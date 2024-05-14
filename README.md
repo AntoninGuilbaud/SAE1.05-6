@@ -1,0 +1,4 @@
+SAE1.05/6 Recueil de besoins / Découverte de l’environnement économique et écologique (2023-2024) 
+
+CREATION DU SITE WEB INSTITUTIONNEL D’UNE ENTREPRISE DU
+SECTEUR NUMERIQUE, A DESTINATION DE LA GENERATION ALPHA
